@@ -1,4 +1,3 @@
-//[![MasterHead](https://user-images.githubusercontent.com/74038190/241765440-80728820-e06b-4f96-9c9e-9df46f0cc0a5.gif)]()
 <h1 align="center">Hi 👋, I'm Prateek Giri</h1>
 <h3 align="center">A passionate developer from India</h3>
 <img align="right" alt="Coding" src="https://steamuserimages-a.akamaihd.net/ugc/1631947648964785474/81CBA15178466DD47195A239232202E78987B714/?imw=637&imh=358&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=true">
