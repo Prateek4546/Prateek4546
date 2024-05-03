@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **prateekgiri999@gmail.com**
 
-- 📄 Know about my experiences [[https://drive.google.com/file/d/1Ii_Z6kwVPLSJajloA9dkble_BxWCDF4F/view?usp=share_link](https://drive.google.com/file/d/18HWUrp01S168BPTyNpq5Z805T9bv1R3x/view?usp=sharing)]([https://drive.google.com/file/d/1Ii_Z6kwVPLSJajloA9dkble_BxWCDF4F/view?usp=share_link](https://drive.google.com/file/d/18HWUrp01S168BPTyNpq5Z805T9bv1R3x/view?usp=sharing))
+- 📄 Know about my experiences [[https://drive.google.com/file/d/1Ii_Z6kwVPLSJajloA9dkble_BxWCDF4F/view?usp=share_link](https://drive.google.com/file/d/18HWUrp01S168BPTyNpq5Z805T9bv1R3x/view?usp=sharing)]([https://drive.google.com/file/d/1Ii_Z6kwVPLSJajloA9dkble_BxWCDF4F/view?usp=share_link]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
